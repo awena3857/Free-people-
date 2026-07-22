@@ -4,3 +4,4 @@ we the united people of this great country of unified states say enough is enoug
 as God is my witness i will stand up against the  systems that were corrupted but meant to keep the American people free. Federal government has overstepped our constitutional rights our forefathers paid for in the blood of our fallen troops. the American dream was not about policing the people into submission, it was about providing sanctuary to the ones who came to these states seeking a life of free of oppression.  taxation should go to the American people first instead of funding the machines that were designed to keep us locked in a neverending war with burocuracy.  we as patriotic Americans do not stand united because of the walls that corruption has built to silence those brave enough to speak against it...
 
 
+who will stand?  who Will speak? who will gight the good fight for our rights our freedoms and our liberty.
